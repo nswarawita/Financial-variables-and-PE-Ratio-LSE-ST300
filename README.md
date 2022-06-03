@@ -1,1 +1,0 @@
-# Financial-variables-and-PE-Ratio-LSE-ST300
